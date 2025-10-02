@@ -1,2 +1,2 @@
 # technisch_moeglich
-in no wasserschaden we trust
+learn from my mistakes and save yourself from headaches
